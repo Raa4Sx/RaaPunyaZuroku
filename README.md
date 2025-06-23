@@ -1,2 +1,0 @@
-# RaaPunyqZuroku
-No Desk
